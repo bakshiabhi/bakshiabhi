@@ -12,7 +12,7 @@ Here are some ideas to get you started:
 - 💬 Ask me about Project and test management
 - 📫 How to reach me: bakshiabhi@gmail.com
 - 😄 Pronouns: yeah
-- ⚡ Fun fact:I love to plau cricket and learn to code
+- ⚡ Fun fact:I love to play cricket and learn to code
 -->
 
 
